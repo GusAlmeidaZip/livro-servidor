@@ -1,0 +1,1 @@
+n sei oq eu fiz mas eu fiz :) funcionou metade o resto eu corringuei fiz e quis arremessar pela janela espero q consiga entender oq eu fiz nos codigos usei um pouco de tudo des de video de indiano até video de russo usando stackoverflow até chatgpt e nn consegui entender o pq nn deu certo kkkkkkkk eu corringuei 5 vezes já 
